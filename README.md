@@ -1,0 +1,2 @@
+# Boymurod
+Qamashi
